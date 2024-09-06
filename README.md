@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @haseebkhann2005
 - 👀 I’m interested in WEB DEVELOPMENT
-- 🌱 I’m currently learning FULL STACK WEB DEVELOPMENT
+- 🌱 I’m have mastered FULL STACK WEB DEVELOPMENT
 - 💞️ I’m looking to collaborate on multi-national projects
 - 📫 How to reach me  abdulhaseebk2005@gmai.com
 - 😄 Pronouns: haseeb khan
